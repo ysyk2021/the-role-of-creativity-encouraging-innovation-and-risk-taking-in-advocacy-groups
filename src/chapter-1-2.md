@@ -1,4 +1,4 @@
-Introduction: Overview of the Role of Creativity in Advocacy Groups
+Overview of the Role of Creativity in Advocacy Groups
 ===================================================================
 
 Advocacy groups play a critical role in effecting social, political, and environmental change. To achieve their goals, these groups must be adaptable and innovative, utilizing creative approaches to engage audiences, convey messages, and effect meaningful change.

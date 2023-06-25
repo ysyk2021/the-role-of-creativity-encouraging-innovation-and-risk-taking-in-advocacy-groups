@@ -1,5 +1,4 @@
-Chapter 1: Defining Creativity in Advocacy: Examples of Creative Advocacy in Practice
-=====================================================================================
+# Examples of Creative Advocacy in Practice
 
 Creativity is crucial for effective advocacy, as it can help organizations stand out, capture attention, and inspire action. In this chapter, we will explore what creativity means in the context of advocacy and provide examples of creative advocacy in practice.
 

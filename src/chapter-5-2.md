@@ -1,5 +1,4 @@
-Chapter 4: Art and Design: Designing Effective Graphics and Marketing Materials
-===============================================================================
+# Designing Effective Graphics and Marketing Materials
 
 Art and design play a crucial role in advocacy work, helping to communicate complex ideas and inspire action. In this chapter, we will explore how advocacy groups can use art and design to create effective graphics and marketing materials.
 

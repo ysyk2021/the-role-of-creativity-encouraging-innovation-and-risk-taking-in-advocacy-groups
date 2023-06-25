@@ -1,5 +1,4 @@
-Chapter 5: Technology and Innovation: Exploring emerging technologies for advocacy
-==================================================================================
+# Exploring emerging technologies for advocacy
 
 Advocacy groups can leverage technology to enhance their creative advocacy efforts. In this chapter, we will explore some of the emerging technologies that are transforming advocacy work.
 

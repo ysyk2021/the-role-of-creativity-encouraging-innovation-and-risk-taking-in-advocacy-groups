@@ -1,5 +1,4 @@
-Chapter 7: Organizational Culture: Building a Culture of Creativity Within Advocacy Groups
-==========================================================================================
+# Building a Culture of Creativity Within Advocacy Groups
 
 Building a culture of creativity is critical to the success of advocacy work. In this chapter, we will explore how advocacy groups can foster a culture of creativity within their organization.
 

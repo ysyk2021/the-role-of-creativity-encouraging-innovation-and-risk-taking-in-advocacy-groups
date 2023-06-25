@@ -1,5 +1,4 @@
-Chapter 6: Campaign Development: Developing creative campaigns for advocacy
-===========================================================================
+# Developing creative campaigns for advocacy
 
 Developing effective campaigns is critical to the success of advocacy work. In this chapter, we will explore how advocacy groups can develop creative campaigns that engage audiences and inspire action.
 

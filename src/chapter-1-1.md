@@ -1,4 +1,4 @@
-Introduction: Purpose of the Book
+Purpose of the Book
 =================================
 
 The purpose of this book is to explore the important role of creativity in advocacy groups and provide techniques for encouraging innovation and risk-taking. We will discuss the benefits of creativity in advocacy and provide examples of creative advocacy in practice.

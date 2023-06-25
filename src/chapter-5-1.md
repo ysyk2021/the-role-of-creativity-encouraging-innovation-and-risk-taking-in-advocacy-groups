@@ -1,5 +1,4 @@
-Chapter 4: Art and Design: Incorporating Visual Arts into Advocacy Efforts
-==========================================================================
+# Incorporating Visual Arts into Advocacy Efforts
 
 Visual arts can be a powerful tool for advocacy groups, helping to engage audiences and inspire action. In this chapter, we will explore how advocacy groups can incorporate visual arts into their advocacy efforts.
 

@@ -1,5 +1,4 @@
-Chapter 2: Overcoming Barriers to Creativity: Techniques for Overcoming Creative Blocks
-=======================================================================================
+# Techniques for Overcoming Creative Blocks
 
 Creative blocks can be a significant obstacle to creativity in advocacy. When individuals or teams experience creative blocks, it can feel frustrating and demotivating. In this chapter, we will discuss techniques for overcoming creative blocks and fostering a culture of creativity.
 

@@ -1,5 +1,4 @@
-Chapter 2: Overcoming Barriers to Creativity: Identifying Obstacles to Creativity in Advocacy
-=============================================================================================
+# Identifying Obstacles to Creativity in Advocacy
 
 Creativity is essential for advocacy, but many organizations face obstacles that can hinder their ability to be creative. In this chapter, we will discuss common obstacles to creativity in advocacy and techniques for overcoming them.
 

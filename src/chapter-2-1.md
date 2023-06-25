@@ -1,5 +1,4 @@
-Chapter 1: Defining Creativity in Advocacy: What is Creativity in Advocacy?
-===========================================================================
+# What is Creativity in Advocacy?
 
 Creativity is a critical component of effective advocacy. It involves finding new and innovative ways to approach problems, engage audiences, and inspire action. In the context of advocacy, creativity can take many forms and utilize different mediums, such as visual arts or storytelling, to convey a message or engage an audience.
 

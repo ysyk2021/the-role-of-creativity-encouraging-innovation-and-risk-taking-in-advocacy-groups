@@ -1,5 +1,4 @@
-Chapter 7: Organizational Culture: Navigating challenges and setbacks
-=====================================================================
+# Navigating challenges and setbacks
 
 Advocacy work can be challenging and setbacks are inevitable. In this chapter, we will explore how advocacy groups can navigate challenges and setbacks by cultivating a culture of innovation and resilience.
 

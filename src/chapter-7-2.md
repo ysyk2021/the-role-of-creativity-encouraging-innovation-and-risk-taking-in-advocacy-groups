@@ -1,5 +1,4 @@
-Chapter 6: Campaign Development: Collaborating on ideas and implementation
-==========================================================================
+# Collaborating on ideas and implementation
 
 Developing effective campaigns requires collaboration among advocates, designers, writers, and other stakeholders. In this chapter, we will explore how advocacy groups can collaborate effectively on campaign development.
 

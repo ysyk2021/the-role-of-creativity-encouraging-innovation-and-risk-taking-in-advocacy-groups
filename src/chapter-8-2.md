@@ -1,5 +1,4 @@
-Chapter 7: Organizational Culture: Encouraging Risk-Taking and Experimentation
-==============================================================================
+# Encouraging Risk-Taking and Experimentation
 
 Organizational culture plays a critical role in encouraging innovation and risk-taking in advocacy groups. In this chapter, we will explore how advocacy groups can create a culture that fosters creativity and experimentation.
 

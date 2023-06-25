@@ -1,5 +1,4 @@
-Chapter 5: Technology and Innovation: Leveraging technology for creative advocacy
-=================================================================================
+# Leveraging technology for creative advocacy
 
 Technology is rapidly changing the landscape of advocacy work. In this chapter, we will explore how advocacy groups can leverage technology to enhance their creative advocacy efforts.
 

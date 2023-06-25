@@ -1,5 +1,4 @@
-Chapter 3: Storytelling and Narrative: Using Storytelling to Connect with Audiences
-===================================================================================
+# Using Storytelling to Connect with Audiences
 
 Storytelling is a powerful tool for advocacy, as it can help advocates connect with their audience on an emotional level and inspire action. In this chapter, we will discuss techniques for using storytelling to connect with audiences.
 

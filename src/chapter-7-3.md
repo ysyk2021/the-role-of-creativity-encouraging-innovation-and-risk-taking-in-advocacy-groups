@@ -1,5 +1,4 @@
-Chapter 6: Campaign Development: Measuring the Impact of Creative Campaigns
-===========================================================================
+# Measuring the Impact of Creative Campaigns
 
 Developing creative campaigns is a critical component of advocacy work, but it's essential to measure their impact to determine their effectiveness. In this chapter, we will discuss techniques for measuring the impact of creative campaigns.
 

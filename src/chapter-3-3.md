@@ -1,5 +1,4 @@
-Chapter 2: Overcoming Barriers to Creativity: Fostering a Culture of Creativity
-===============================================================================
+# Fostering a Culture of Creativity
 
 Creativity is essential for advocacy, but many organizations face barriers that can hinder their ability to be creative. In this chapter, we will discuss techniques for overcoming barriers to creativity and fostering a culture of creativity.
 

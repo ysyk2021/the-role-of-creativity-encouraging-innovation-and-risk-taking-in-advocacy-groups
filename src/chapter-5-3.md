@@ -1,5 +1,4 @@
-Chapter 4: Art and Design: Creating immersive experiences through art
-=====================================================================
+# Creating immersive experiences through art
 
 Art and design are powerful tools for advocacy groups, offering unique ways to engage audiences and create immersive experiences. In this chapter, we will explore how advocacy groups can use art and design to promote their message and inspire action.
 

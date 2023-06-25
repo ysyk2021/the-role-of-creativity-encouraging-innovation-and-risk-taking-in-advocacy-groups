@@ -1,5 +1,4 @@
-Chapter 5: Technology and Innovation: Encouraging Experimentation and Innovation
-================================================================================
+# Encouraging Experimentation and Innovation
 
 Technology and innovation play a critical role in advocacy work, helping to drive change and increase impact. In this chapter, we will explore how advocacy groups can encourage experimentation and innovation through the use of technology.
 
