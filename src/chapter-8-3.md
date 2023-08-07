@@ -1,4 +1,4 @@
-Chapter 5: Navigating Challenges and Setbacks
+Navigating Challenges and Setbacks
 =============================================
 
 Introduction

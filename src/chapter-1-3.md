@@ -1,4 +1,4 @@
-Chapter: Importance of Encouraging Innovation and Risk-Taking
+Importance of Encouraging Innovation and Risk-Taking
 =============================================================
 
 Introduction

@@ -1,4 +1,4 @@
-Chapter 5: Encouraging Risk-Taking and Experimentation
+Encouraging Risk-Taking and Experimentation
 ======================================================
 
 In this chapter, we will explore how creativity plays a crucial role in encouraging risk-taking and experimentation within advocacy groups. We will examine various strategies and techniques that can be employed to foster an environment where members feel empowered to take risks and explore new ideas. Through embracing experimentation, these organizations can discover innovative solutions to societal challenges.

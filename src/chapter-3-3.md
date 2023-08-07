@@ -1,4 +1,4 @@
-Chapter: Fostering a Culture of Creativity
+Fostering a Culture of Creativity
 ==========================================
 
 Introduction

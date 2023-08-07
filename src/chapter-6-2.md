@@ -1,4 +1,4 @@
-Chapter: Recognizing the Connection between Positive Thinking and Energy
+Recognizing the Connection between Positive Thinking and Energy
 ========================================================================
 
 Introduction

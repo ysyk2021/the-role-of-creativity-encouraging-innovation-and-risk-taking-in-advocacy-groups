@@ -1,4 +1,4 @@
-Chapter: Addressing New Challenges in Advocacy
+Addressing New Challenges in Advocacy
 ==============================================
 
 Introduction

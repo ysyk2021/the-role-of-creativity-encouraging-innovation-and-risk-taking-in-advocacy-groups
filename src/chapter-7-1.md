@@ -1,4 +1,4 @@
-Chapter: Developing Creative Campaigns for Advocacy
+Developing Creative Campaigns for Advocacy
 ===================================================
 
 Introduction

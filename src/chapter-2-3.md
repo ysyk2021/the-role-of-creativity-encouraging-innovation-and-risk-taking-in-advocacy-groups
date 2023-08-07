@@ -3,7 +3,7 @@ Examples of Creative Advocacy in Practice
 
 In this chapter, we will explore various examples of creative advocacy initiatives that have effectively encouraged innovation and risk-taking within advocacy groups. These examples demonstrate how creativity can be leveraged to address social issues, promote positive change, and amplify the voices of marginalized communities.
 
-1. Artistic Expression as Advocacy
+1\. Artistic Expression as Advocacy
 ----------------------------------
 
 Art has long been a powerful medium for advocacy, providing a platform for individuals and communities to express their experiences and challenge societal norms. We examine notable examples such as:
@@ -12,7 +12,7 @@ Art has long been a powerful medium for advocacy, providing a platform for indiv
 
 * **Performance art**: Performance art offers a unique way to communicate advocacy messages through live performances. We highlight renowned artists who have utilized this form to raise awareness and provoke thought on pressing social issues.
 
-2. Digital Innovation for Advocacy
+2\. Digital Innovation for Advocacy
 ----------------------------------
 
 With the advent of technology, digital platforms have become essential tools for advocacy groups to reach wider audiences and drive meaningful change. We discuss innovative digital initiatives, including:
@@ -21,7 +21,7 @@ With the advent of technology, digital platforms have become essential tools for
 
 * **Gamification**: Gamification techniques have been utilized by advocacy groups to engage users and promote awareness. We showcase instances where gaming elements have been integrated into advocacy efforts, resulting in increased participation and impact.
 
-3. Collaborative Ventures in Advocacy
+3\. Collaborative Ventures in Advocacy
 -------------------------------------
 
 Many advocacy groups have recognized the strength in collaboration and have formed partnerships with diverse stakeholders to achieve shared goals. We explore examples of collaborative ventures such as:
@@ -30,7 +30,7 @@ Many advocacy groups have recognized the strength in collaboration and have form
 
 * **Global advocacy networks**: International collaboration is crucial in tackling global issues. We showcase successful global advocacy networks that have united organizations and individuals across borders to address common challenges.
 
-4. Creative Policy Advocacy
+4\. Creative Policy Advocacy
 ---------------------------
 
 Advocacy groups often employ creative approaches to influence policy-making processes and drive policy changes. We analyze examples such as:

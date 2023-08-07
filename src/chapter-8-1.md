@@ -1,4 +1,4 @@
-Chapter: Building a Culture of Creativity Within Advocacy Groups
+Building a Culture of Creativity Within Advocacy Groups
 ================================================================
 
 Introduction

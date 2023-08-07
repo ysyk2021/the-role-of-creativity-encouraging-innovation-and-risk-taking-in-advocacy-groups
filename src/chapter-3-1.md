@@ -1,4 +1,4 @@
-Chapter: Identifying Obstacles to Creativity in Advocacy
+Identifying Obstacles to Creativity in Advocacy
 ========================================================
 
 Introduction
