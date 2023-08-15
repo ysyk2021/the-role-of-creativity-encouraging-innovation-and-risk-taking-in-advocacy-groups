@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-  - [Purpose of the book](chapter-1-1.md)
   - [Overview of the role of creativity in advocacy groups](chapter-1-2.md)
   - [Importance of encouraging innovation and risk-taking](chapter-1-3.md)
 - [Chapter 1: Defining Creativity in Advocacy](chapter-2.md)

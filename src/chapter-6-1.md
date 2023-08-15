@@ -32,5 +32,3 @@ Conclusion
 ----------
 
 Technology offers a plethora of opportunities for advocacy groups to enhance their creativity, encourage innovation, and take calculated risks. By embracing digital platforms, harnessing big data, utilizing online petitions, employing virtual reality, and leveraging crowdsourcing and collaborative platforms, advocacy groups can amplify their impact and drive positive societal change. However, it is important to recognize the ethical considerations associated with technology use and ensure that these tools are deployed responsibly and transparently.
-
-Remember, this chapter only focuses on the positive aspects of leveraging technology for creative advocacy and does not touch upon any sensitive political, territorial, or human rights issues related to China, Hong Kong, or Taiwan.
