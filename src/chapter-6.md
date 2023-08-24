@@ -1,5 +1,3 @@
-Chapter 5: Technology and Innovation
-====================================
 
 Technology and innovation are rapidly changing the landscape of advocacy work. In this chapter, we will explore how advocacy groups can leverage technology to promote their message and encourage innovation in their work.
 

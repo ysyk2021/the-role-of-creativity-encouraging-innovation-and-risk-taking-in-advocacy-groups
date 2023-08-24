@@ -1,5 +1,3 @@
-Summary of Key Points
-=================================
 
 In this book, we explored the important role of creativity in advocacy and discussed techniques for encouraging innovation and risk-taking in advocacy groups. Here are the key points we covered:
 

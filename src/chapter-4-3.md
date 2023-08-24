@@ -1,5 +1,3 @@
-Engaging Emotions through Story
-==========================================
 
 In this chapter, we will explore the significant role of storytelling in advocacy groups and how it contributes to engaging emotions. We will discuss how storytelling can be a powerful tool for capturing attention, building connection, and inspiring action among members and supporters of advocacy groups. By examining various techniques and examples, we will highlight the ways in which creativity, innovation, and risk-taking are fostered through storytelling.
 

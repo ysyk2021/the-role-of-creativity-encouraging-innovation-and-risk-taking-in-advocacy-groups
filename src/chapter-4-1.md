@@ -1,5 +1,3 @@
-Using Storytelling to Connect With Audiences
-=====================================================
 
 In this chapter, we will explore the powerful tool of storytelling and its role in connecting advocacy groups with their audiences. We will examine how storytelling can engage, inspire, and mobilize people towards a common cause. Through compelling narratives, advocacy groups can effectively communicate their messages, evoke emotions, and foster a sense of empathy among their target audience.
 

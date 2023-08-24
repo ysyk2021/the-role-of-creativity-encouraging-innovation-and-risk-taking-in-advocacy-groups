@@ -1,5 +1,3 @@
-Crafting Compelling Narratives for Advocacy
-======================================================
 
 In the world of advocacy, narratives play a crucial role in shaping public opinion and driving social change. Crafting compelling narratives is an art that empowers advocacy groups to effectively communicate their messages, engage with their target audience, and inspire action. This chapter delves into the key strategies and techniques involved in creating impactful narratives for advocacy.
 

@@ -1,5 +1,3 @@
-Final Thoughts on the Role of Creativity in Advocacy Groups and Encouraging Innovation and Risk-Taking
-==================================================================================================================
 
 In this book, we explored the important role of creativity in advocacy and discussed techniques for encouraging innovation and risk-taking in advocacy groups. We have seen that creativity is essential for advocacy, as it can help organizations stand out, capture attention, and inspire action. Fostering a culture of creativity is important for unlocking new possibilities for advocacy and overcoming obstacles to creativity.
 

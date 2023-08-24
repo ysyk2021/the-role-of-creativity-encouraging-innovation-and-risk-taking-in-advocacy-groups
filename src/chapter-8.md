@@ -1,5 +1,3 @@
-Chapter 7: Organizational Culture
-=================================
 
 Organizational culture plays a vital role in encouraging creativity, innovation, and risk-taking within advocacy groups. In this chapter, we will discuss techniques for building a culture of creativity within advocacy groups, encouraging risk-taking and experimentation, and navigating challenges and setbacks.
 

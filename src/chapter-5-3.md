@@ -1,5 +1,3 @@
-Creating Immersive Experiences through Art
-===================================================
 
 In this chapter, we explore the role of art in creating immersive experiences for advocacy groups. We delve into how art can be used as a powerful tool to encourage innovation and risk-taking within these groups. By engaging emotions, stimulating senses, and fostering connections, art has the potential to amplify the impact of advocacy efforts. This chapter highlights various ways in which art can be utilized to create immersive experiences that captivate audiences and drive meaningful change.
 

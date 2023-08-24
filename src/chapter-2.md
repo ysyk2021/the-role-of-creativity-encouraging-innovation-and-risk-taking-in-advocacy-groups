@@ -1,5 +1,3 @@
-Chapter 1: Defining Creativity in Advocacy
-==========================================
 
 Creativity is a fundamental aspect of advocacy. It allows organizations to approach problems in new and innovative ways, engage audiences, and inspire action. In this chapter, we will explore what creativity means in the context of advocacy, the benefits of creativity in advocacy, and examples of creative advocacy in practice.
 

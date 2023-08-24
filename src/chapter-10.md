@@ -1,5 +1,3 @@
-Conclusion
-==========
 
 In this book, we have explored the role of creativity in advocacy groups and how it can encourage innovation and risk-taking. We have seen how art and design, technology, collaboration, and data-driven strategies can be used to create compelling messages and engage audiences.
 

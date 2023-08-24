@@ -1,5 +1,3 @@
-Measuring the Impact of Creative Campaigns
-===================================================
 
 In this chapter, we will explore the importance of measuring the impact of creative campaigns in advocacy groups. Creativity plays a crucial role in encouraging innovation and risk-taking within these organizations. By effectively measuring the outcomes of creative campaigns, advocacy groups can ascertain the effectiveness of their efforts and make informed decisions for future initiatives.
 

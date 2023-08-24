@@ -1,4 +1,3 @@
-# What is Creativity in Advocacy?
 
 In this chapter, we will explore the concept of creativity and its role in advocacy groups. Creativity is a fundamental ingredient for innovation and successful advocacy efforts. It involves generating fresh ideas, thinking outside the box, and finding unique solutions to complex problems. Let's delve into the definition and significance of creativity within the context of advocacy.
 

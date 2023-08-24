@@ -1,5 +1,3 @@
-Introduction
-============
 
 Advocacy groups play a significant role in promoting social and political change. These groups are often formed to address issues that are not adequately addressed by governments or other institutions. However, the success of advocacy groups depends on their ability to innovate and take risks. In this book, we will explore the role of creativity in encouraging innovation and risk-taking in advocacy groups.
 

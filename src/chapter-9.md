@@ -1,5 +1,3 @@
-Chapter 8: The Future of Creative Advocacy
-==========================================
 
 As the challenges facing society continue to evolve, advocacy groups must find new ways to engage audiences and promote change. In this chapter, we will explore some of the innovations in creative advocacy that are shaping the future of advocacy work.
 

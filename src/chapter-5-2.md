@@ -1,5 +1,3 @@
-Designing Effective Graphics and Marketing Materials
-===============================================================
 
 In today's digital age, advocacy groups rely heavily on visual communication to convey their messages effectively. Designing compelling graphics and marketing materials plays a crucial role in capturing the attention of target audiences, conveying key information, and inspiring action. This chapter will explore the principles and strategies for creating visually impactful materials that can enhance the role of creativity in encouraging innovation and risk-taking within advocacy groups.
 

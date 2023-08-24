@@ -1,5 +1,3 @@
-Chapter 4: Art and Design
-=========================
 
 Art and design are powerful tools for advocacy, as they can help communicate complex issues in a way that is visually compelling and emotionally resonant. In this chapter, we will discuss techniques for incorporating art and design into advocacy efforts.
 

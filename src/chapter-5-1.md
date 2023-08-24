@@ -1,5 +1,3 @@
-Incorporating Visual Arts into Advocacy Efforts
-========================================================
 
 Advocacy groups play a crucial role in raising awareness and promoting social change. In recent years, the use of visual arts has emerged as a powerful tool to convey messages, evoke emotions, and engage audiences in advocacy efforts. This chapter explores the impact of incorporating visual arts into advocacy campaigns, highlighting its potential benefits and providing practical examples.
 

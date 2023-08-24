@@ -1,5 +1,3 @@
-Chapter 3: Storytelling and Narrative
-=====================================
 
 Storytelling and narrative are powerful tools for advocacy, as they can help connect people on an emotional level and inspire action. In this chapter, we will discuss techniques for using storytelling and narrative in advocacy.
 

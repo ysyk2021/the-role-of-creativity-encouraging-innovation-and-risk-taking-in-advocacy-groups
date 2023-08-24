@@ -1,4 +1,3 @@
-# Introduction
 
 "The Role of Creativity: Encouraging Innovation and Risk-Taking in Advocacy Groups" is a comprehensive guide to promoting creativity and innovation in the advocacy world. With social change organizations facing increasingly complex challenges, creativity has become an essential tool for driving impact and achieving success.
 

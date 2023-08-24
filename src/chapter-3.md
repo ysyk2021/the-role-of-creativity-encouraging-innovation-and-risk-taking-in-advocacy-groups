@@ -1,5 +1,3 @@
-Chapter 2: Overcoming Barriers to Creativity
-============================================
 
 Creativity is essential for advocacy, but many organizations face obstacles that can hinder their ability to be creative. In this chapter, we will explore techniques for overcoming creative blocks and fostering a culture of creativity in advocacy.
 

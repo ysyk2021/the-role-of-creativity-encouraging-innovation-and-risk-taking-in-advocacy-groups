@@ -1,4 +1,3 @@
-# Encouraging Risk-Taking and Experimentation
 
 In this chapter, we will explore the importance of encouraging risk-taking and experimentation within advocacy groups. Embracing these principles promotes innovation, fosters creative problem-solving, and allows organizations to push boundaries and drive meaningful change. Let's delve into the key strategies for building a culture that encourages risk-taking and experimentation.
 

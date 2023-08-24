@@ -1,4 +1,3 @@
-# Identifying Obstacles to Creativity in Advocacy
 
 In this chapter, we will explore the various obstacles that can hinder creativity within advocacy groups. While creativity is essential for driving innovation and risk-taking, it can face challenges in certain environments. Understanding these obstacles is crucial for creating an atmosphere that fosters and nurtures creativity. Let's delve into the common barriers that advocacy groups may encounter.
 

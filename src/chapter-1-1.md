@@ -1,5 +1,3 @@
-Purpose of the Book
-==============================
 
 In this chapter, we will discuss the purpose and significance of the book "The Role of Creativity: Encouraging Innovation and Risk Taking in Advocacy Groups." We will explore the relevance of creativity, innovation, and risk-taking within the context of advocacy groups and their role in driving social change.
 

@@ -1,5 +1,3 @@
-Examples of Creative Advocacy in Practice
-==================================================
 
 In this chapter, we will explore various examples of creative advocacy initiatives that have effectively encouraged innovation and risk-taking within advocacy groups. These examples demonstrate how creativity can be leveraged to address social issues, promote positive change, and amplify the voices of marginalized communities.
 
