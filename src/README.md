@@ -8,3 +8,7 @@ Whether you're a leader or member of an advocacy group, this book will provide y
 So if you're ready to take your advocacy efforts to the next level, then "The Role of Creativity: Encouraging Innovation and Risk-Taking in Advocacy Groups" is the perfect guide to help you get started. Let's dive in and discover how to become a more creative and effective advocate!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
