@@ -1,5 +1,4 @@
-Chapter: Innovations in Creative Advocacy
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the role of innovation and creativity in advocacy groups and how they can foster effective and impactful advocacy initiatives. We delve into the various innovations that have emerged in the realm of creative advocacy, empowering readers to embrace new approaches and techniques for advancing their causes.
 
